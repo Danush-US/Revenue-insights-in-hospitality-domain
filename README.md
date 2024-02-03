@@ -1,1 +1,1 @@
-# -Revenue-insights-in-hospitality-domain
+# Revenue-insights-in-hospitality-domain
